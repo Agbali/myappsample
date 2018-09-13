@@ -1,0 +1,1 @@
+Just a little app for my Andela learning tutorial. I hope one day when i'm a Pro, i look back on this and thank God for not despising my new beginnings.
